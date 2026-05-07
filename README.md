@@ -10,7 +10,7 @@ Mini bio by <b>Jessica Emberly</b>
 This is a story that is inspired by my family, and how everything unfolded after the separation of my parents.
 [Amazon](https://www.amazon.com/dp/B0GTJCFTKH)
 
-### Life
+## Life
 <img width="750" height="500" alt="1000006477" src="https://github.com/user-attachments/assets/9efeeee6-2503-4fc1-9673-2e89c082ee39" />
 
 This book showcases the channel between life and death, and how life can change in an instant.
