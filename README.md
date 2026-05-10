@@ -15,3 +15,8 @@ This is a story that is inspired by my family, and how everything unfolded after
 
 This book showcases the channel between life and death, and how life can change in an instant.
 [Amazon](https://www.amazon.com/dp/B0GVJ3Q111)
+
+## Jessica Emberly Photography: Volume 1
+<img width="2000" height="1298" alt="Jessica Emberly Photography_ Volume 1 (Cover)_20260510_023756_0000" src="https://github.com/user-attachments/assets/3810e1a8-b08b-4e79-89f8-3570f79fa0cb" />
+
+[Amazon](https://www.amazon.com/Jessica-Emberly-Photography-1/dp/B0GZ642WWK)
