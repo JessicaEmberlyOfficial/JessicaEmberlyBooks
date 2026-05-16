@@ -17,7 +17,7 @@ This book showcases the channel between life and death, and how life can change 
 [Amazon](https://www.amazon.com/dp/B0GVJ3Q111)
 
 ## Jessica Emberly Photography: Volume 1
-<img width="2000" height="1298" alt="Jessica Emberly Photography_ Volume 1 (Cover)_20260510_023756_0000" src="https://github.com/user-attachments/assets/3810e1a8-b08b-4e79-89f8-3570f79fa0cb" />
+<img width="750" height="500" alt="Jessica Emberly Photography_ Volume 1 (Cover)_20260510_023756_0000" src="https://github.com/user-attachments/assets/3810e1a8-b08b-4e79-89f8-3570f79fa0cb" />
 
 A book with my photography.
 [Amazon](https://www.amazon.com/Jessica-Emberly-Photography-1/dp/B0GZ642WWK)
