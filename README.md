@@ -21,3 +21,9 @@ This book showcases the channel between life and death, and how life can change 
 
 A book with my photography.
 [Amazon](https://www.amazon.com/Jessica-Emberly-Photography-1/dp/B0GZ642WWK)
+
+## Ghost: A basic guide on becoming untraceable on mobile
+<img width="750" height="500" alt="1000046711" src="https://github.com/user-attachments/assets/dfa54f78-47ab-40d7-b04f-cb099e141958" />
+
+A basic yet detailed guide on becoming untracrable from government agencies using a Graphene OS mobile device.
+[Amazon](https://www.amazon.com/dp/B0H4S28T63)
