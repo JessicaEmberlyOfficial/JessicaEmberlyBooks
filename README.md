@@ -29,7 +29,7 @@ A basic yet detailed guide on becoming untracrable from government agencies usin
 [Amazon](https://www.amazon.com/dp/B0H4S28T63)
 
 ## The Sauce Packets of The Office: Part 1
-<img width="2000" height="1305" alt="208" src="https://github.com/user-attachments/assets/bbb0a905-5429-4a31-b073-463f0e516dd6" />
+<img width="750" height="500" alt="208" src="https://github.com/user-attachments/assets/bbb0a905-5429-4a31-b073-463f0e516dd6" />
 
 Ketchup has been working an office job for little over two years, and Purple sauce the cousin of the viral Pink sauce just started working there after she had applied two days ago.
 [Amazon](https://www.amazon.com/dp/B0H4YHKXDW)
